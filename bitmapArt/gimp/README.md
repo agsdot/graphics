@@ -1,0 +1,1 @@
+- Train1.jpg , the first serious Gimp art I've done in a while. Time, approximately one hour.
